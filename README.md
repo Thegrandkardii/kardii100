@@ -5,6 +5,8 @@
 
 - 💞️ I’m looking to collaborate on game applications and more tech innovations 
 - 📫 How to reach me ajekwesarah@gmail.com
+ Ig  @thegrandkardii._
+
 
 <!---
 kardii100/kardii100 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
