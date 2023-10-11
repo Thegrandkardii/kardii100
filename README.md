@@ -1,8 +1,6 @@
 - 👋 Hi, I’m @kardii100
 - 👀 I’m interested in gaming, sports, adventure , tech, reading, researching, watching movies & listening to music 
 
-- 🌱 I’m currently learning python, AI, cyber security, web development 
-
 - 💞️ I’m looking to collaborate on open-source applications and innovative tech solutions
 - 📫 How to reach me ajekwesarah@gmail.com
  Ig  @thegrandkardii._
