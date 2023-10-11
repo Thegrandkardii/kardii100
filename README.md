@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning python, AI, cyber security, web development 
 
-- 💞️ I’m looking to collaborate on game applications and more tech innovations 
+- 💞️ I’m looking to collaborate on open-source applications and innovative tech solutions
 - 📫 How to reach me ajekwesarah@gmail.com
  Ig  @thegrandkardii._
 
