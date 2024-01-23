@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @kardii100
-- 👀 I’m interested in gaming, sports, adventure , tech, reading, researching, watching movies & listening to music 
+- 👋 Hi, I’m @kadoon
+- 👀 I’m interested in gaming, sports, adventure, travel, tech, reading, researching, watching movies & listening to music 
 
 - 💞️ I’m looking to collaborate on open-source applications and innovative tech solutions
 - 📫 How to reach me ajekwesarah@gmail.com
- Ig  @thegrandkardii._
+  
 
 
 <!---
